@@ -4,4 +4,5 @@ The digital world is the one we create, the one we share with a lot of people fr
 
 The idea of what world is more real, digital or offline I believe is like the plot of [Digimon](https://www.youtube.com/watch?v=h5kmqxh_k6E) or Matrix, where the characters can change their reality, but in this context the digital world is only a reflection of the offline world, a reflection where the people maybe feel more freedom in words of Oscar Wilde: 
 >“Give a man a mask and he’ll tell you the truth.”
+
 And that´s the digital world a mask, or maybe a party of mask when the people change many qualities, proyect something in a more easy way but the reality becomes attached to something basic, to exist and in the real world your you cannot stop doing it whereas in the digital world you can leave to exist only with put your status on offline or delete your profile, i thinks the question is where can i exist in the digital world? 
