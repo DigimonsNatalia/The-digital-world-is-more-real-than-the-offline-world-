@@ -13,5 +13,10 @@ Technology is supposed to make us life easier, allowing us to do things faster a
 
 The fact is that when you are face to face you can´t hide your true self because every real life conversation can simply not happen with any robot or any digital connection.
 
+We can spend a lot of time of our life’s connected to internet it’s interesting so we don’t get bored and this tool can actually help us in a lot of ways to be more productive. With the arrival of new platforms where people can take their life’s into a public level, words and actions take an important role in order to stay after a long time and have repercussions in others, maybe that’s one of the main reasons why we find newer and newer social networks as well as communities of people that share the same points of views. At the end of the day all what we do sitting in front of a desk and posting on internet is part of our life, the fact that we cannot actually touch what we upload does not make it any less real because it’s something that happened through our actions in an specific time and place, in this case a computer and net. Even If we erase “something” done, that simple thing detonates a series of events that even they are very small have some repercussions not only in our lives but someone else’s even then there will be always be a hint of what we are actually doing. 
+For this reasons people should be more intelligent at the moment of making updates, everyone should think ahead of “What could happened”, digital life depends on us as we are making us of it so If we interact with positive content from everyone then we will rise our reputation in the communities we are active. Everything, online, becomes enhanced in good ways like our actions, relations, words, life offline. 
+Digital world is as real as offline world because both have consequences and rewards, one bad decision can make it or break it in different ways. What we do speaks for ourselves so what we see or write ultimately will become what we will get from both worlds. 
+
+
 References:
 https://medium.com/social-media-7/social-media-the-death-of-real-world-interaction-5e2f33cfd8ee
