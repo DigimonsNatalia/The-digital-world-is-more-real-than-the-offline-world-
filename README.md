@@ -6,3 +6,8 @@ The idea of what world is more real, digital or offline I believe is like the pl
 >“Give a man a mask and he’ll tell you the truth.”
 
 And that´s the digital world a mask, or maybe a party of mask when the people change many qualities, proyect something in a more easy way but the reality becomes attached to something basic, to exist and in the real world your you cannot stop doing it whereas in the digital world you can leave to exist only with put your status on offline or delete your profile, i thinks the question is where can i exist in the digital world? 
+
+>“Sharing is good, and with digital technology, sharing is easy.” Richard Stallman. 
+Technology is supposed to make us life easier, allowing us to do things faster and what makes us sharing stuff online really easy, nowadays social media is changing the way we communicate with others and how people perceive us, both positively and negatively. Every time you post a photo, or upgrade your state, you're helping to create your own fingerprint and personal brand, showing only what you want to show the world, so in the digital universe, our personal history is reflected in our profile  in any social network, a snapshot reflects our life in a present or so that's what we intend to do because it is not always real, because we put our best face to reflect what we want to reflect and not necessarily what it is.
+
+The fact is that when you are face to face you can´t hide your true self because every real life conversation can simply not happen with any robot or any digital connection.
